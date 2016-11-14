@@ -9,4 +9,3 @@ Fun Facts about Nicole Tingey
 * She likes to code
 
 
-dskjab d;fknq'welg'eklnkfbva
