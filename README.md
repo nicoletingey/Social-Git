@@ -7,3 +7,6 @@ Fun Facts about Nicole Tingey
 * She has blonde hair 
 
 * She likes to code
+
+
+dskjab d;fknq'welg'eklnkfbva
