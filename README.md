@@ -9,3 +9,9 @@ Fun Facts about Nicole Tingey
 * She likes to code
 
 
+Andrew - HHAHHAHAHAH
+
+Who is up next?!
+
+I am up next, your turn Collin.
+
