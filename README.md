@@ -1,4 +1,5 @@
 # Social Git! Lets make something
+<<<<<<< HEAD
 
 Fun Facts about Nicole Tingey
 
@@ -7,3 +8,6 @@ Fun Facts about Nicole Tingey
 * She has blonde hair 
 
 * She likes to code
+=======
+HHAHHAHAHAH
+>>>>>>> upstream/master
