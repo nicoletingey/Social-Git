@@ -23,6 +23,17 @@ Things you may want to cover:
 
 * ...
 
+Fun Facts about Nicole Tingey
+
+* She is allergic to the cold... especially snow.
+
+* She has blonde hair 
+
+* She likes to code
+
 
 Please feel free to use a different markup language if you do not plan to run
 <tt>rake doc:app</tt>.
+
+
+
