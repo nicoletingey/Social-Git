@@ -10,8 +10,24 @@ Fun Facts about Nicole Tingey
 HHAHHAHAHAH
 
 
+
+
+alsdkjasldkja
+HHAHHAHAHAH
+
+
 Andrew - HHAHHAHAHAH
 
 Who is up next?!
 
 I am up next, your turn Collin.
+
+I am up next, your turn Collin.
+
+1234asdf
+
+Next up is Anthony!!!
+
+
+Jason is next!!!!!!!
+
