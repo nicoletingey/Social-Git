@@ -9,6 +9,10 @@ Fun Facts about Nicole Tingey
 * She likes to code
 
 
+alsdkjasldkja
+HHAHHAHAHAH
+
+
 Andrew - HHAHHAHAHAH
 
 Who is up next?!
@@ -18,4 +22,7 @@ I am up next, your turn Collin.
 1234asdf
 
 Next up is Anthony!!!
+
+Jason is next!!!!!!!
+
 
